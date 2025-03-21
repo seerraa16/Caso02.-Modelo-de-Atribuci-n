@@ -1,0 +1,1 @@
+# Caso02.-Modelo-de-Atribuci-n
